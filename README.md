@@ -1,0 +1,1 @@
+# 123250219_StrukDat_Responsi
